@@ -72,8 +72,4 @@ w
 
 
 
-
-
-
-
-PTNaG
+2ITH0A
